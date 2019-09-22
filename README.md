@@ -2,4 +2,4 @@
 
 learning how to use github
 
-hi guys i'm new here and ready to learn
+hi guys i'm new here and ready to learn!
